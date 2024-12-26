@@ -1,0 +1,2 @@
+---- guys, you can just copy and paste it directly -----
+                  -Enjoy-
